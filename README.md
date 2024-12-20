@@ -1,2 +1,2 @@
 # selling-src
-selling secure->auths/loaders/protection/fortnite/ and other stuff dm -> thereal0x9
+selling secure->auths/loaders/protection/fortnite/anything and other stuff dm -> thereal0x9
